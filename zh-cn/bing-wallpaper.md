@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-28 | [蒙马特和圣心大教堂，巴黎，法国 (© Tuul & Bruno Morandi/Getty Images)](https://cn.bing.com/th?id=OHR.ParalympicsParis_ZH-CN9773135851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-27 | [黑色凯门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-27 | [黑色���门鳄幼崽，坦博帕塔国家保护区，秘鲁 (© Maxime Aliaga/Minden Pictures)](https://cn.bing.com/th?id=OHR.YoungCaiman_ZH-CN1995433788_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
